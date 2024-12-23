@@ -1,1 +1,1 @@
-for i in range
+ni pook lo na moddddaaa . ni kutha
